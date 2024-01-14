@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @royalinfinity
-- 👀 I’m interested in ... learning to work with coding and developer skills
+- 👀 I’m interested in ... learning to work with coding and developer skills and 
 - 🌱 I’m currently learning ... anything i can
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
